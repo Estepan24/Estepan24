@@ -4,7 +4,7 @@
 ### Im a man that likes yapping too much, and has a rather surprisingly nice life at the moment 
 ### I also program in school (programming classes, no biggie.)
 
-![Estepan24's GitHub Banner](https://www.google.com/url?sa=i&url=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FMaster_of_Puppets&psig=AOvVaw1I9sVDBJvaHHN1r-X9p9R2&ust=1712801725793000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCKjF9uTJtoUDFQAAAAAdAAAAABAE)
+![Estepan24's GitHub Banner](https://i.ebayimg.com/images/g/cuAAAOSw9PhiDBz2/s-l1600.jpg)
 <!--
 Estepan24/Estepan24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
