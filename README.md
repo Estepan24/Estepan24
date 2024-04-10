@@ -1,4 +1,4 @@
-<img align="right" alt="Coding" width="400" src="Metallica_-_Master_Of_Puppets_cover.jpg">
+
 
 ### Hi there 👋
 ### Im a man that likes yapping too much, and has a rather surprisingly nice life at the moment 
