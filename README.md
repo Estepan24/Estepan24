@@ -1,5 +1,6 @@
 ### Hi there 👋
-### 
+### Im a man that likes yapping too much, and has a rather surprisingly nice life at the moment 
+### I also program in school (programming classes, no biggie.)
 
 
 <!--
